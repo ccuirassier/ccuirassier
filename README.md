@@ -6,7 +6,7 @@
 
 
 
-୭　˖　𓏼　" You'll hurt yourself."
+" You'll hurt yourself."
 
 
 
