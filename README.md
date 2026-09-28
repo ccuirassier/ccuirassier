@@ -2,7 +2,7 @@
 <div align="center">
 
 
-![](https://file.garden/afOzvZALWB7P0ssM/looking.gif)
+![](https://file.garden/arpsRCVpq6SQBPbh/sopleasepleasepls.jpg)
 
 
 
