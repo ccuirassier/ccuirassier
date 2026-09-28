@@ -3,11 +3,9 @@
 
 
 <img src="https://file.garden/arpsRCVpq6SQBPbh/sopleasepleasepls.jpg" alt="<3" width="600" height="500">
-
-
-
-
-
+<br>
+<br>
+<br>
 
 
 " You'll hurt yourself."
