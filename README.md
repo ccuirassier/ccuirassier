@@ -1,16 +1,15 @@
-## Hi there 👋
 
-<!--
-**ccuirassier/ccuirassier** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div align="center">
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://file.garden/afOzvZALWB7P0ssM/looking.gif)
+
+
+
+୭　˖　𓏼　" You'll hurt yourself."
+
+
+
+  <a href="https://hits.sh/github.com/aphruseng/"><img alt="Hits" src="https://hits.sh/github.com/aphruseng.svg?style=flat-square&label=bugles%20blown%20for%20the%20british&extraCount=221&color=000000&labelColor=ffffff"/></a>
+
+discord ; ccuirassier
