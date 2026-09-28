@@ -2,7 +2,7 @@
 <div align="center">
 
 
-<img src="https://file.garden/arpsRCVpq6SQBPbh/sopleasepleasepls.jpg" alt="<3" width="400" height="300">
+<img src="https://file.garden/arpsRCVpq6SQBPbh/sopleasepleasepls.jpg" alt="<3" width="600" height="400">
 
 
 
