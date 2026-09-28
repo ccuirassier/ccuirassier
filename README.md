@@ -2,7 +2,7 @@
 <div align="center">
 
 
-![](https://file.garden/arpsRCVpq6SQBPbh/sopleasepleasepls.jpg)
+<img src="https://file.garden/arpsRCVpq6SQBPbh/sopleasepleasepls.jpg" alt="<3" width="400" height="300">
 
 
 
