@@ -8,7 +8,7 @@
 <br>
 
 
-" You'll hurt yourself."
+" Look Johnny ! It's a Skor bar ! "
 
 
 
